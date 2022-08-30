@@ -1,6 +1,7 @@
--  🌙 Oi, eu sou @MariaRaissa35
+-  🌙 Oi, eu sou MariaRaissa
 -  🎮 Estou interessado em programações
 -  💡 Estou aprendendo...pensamento computacional
 -  🏴 Estou procurando aprender... a criar jogos
 - 📫 meu insta é...[raissaooliveira15]
 -  ✍️ meu estado... pr....nrs
+-  👑  niver...28/05
