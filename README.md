@@ -1,0 +1,6 @@
+-  🌙 Oi, eu sou @MariaRaissa35
+-  🎮 Estou interessado em programações
+-  💡 Estou aprendendo...pensamento computacional
+-  🏴 Estou procurando aprender... a criar jogos
+- 📫 meu insta é...[raissaooliveira15]
+-  ✍️ meu estado... pr....nrs
