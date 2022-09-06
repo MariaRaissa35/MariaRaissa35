@@ -1,0 +1,8 @@
+- ☺️ oii me chamo **MariaRaissa35**
+- 👀 estou interessada em leitura e musicas
+- 🌱 estou procurando... novas leituras
+- 🌱 niver 28/05..
+- 📫 [meu instagramhttps://www.instagram.com/raissaooliveira15/]
+- 🌙 meu recado... seja vc, por vc,com vc...
+- ♊️ meus signo ... gemeos
+- ✧ nsr...pr
